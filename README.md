@@ -4,4 +4,4 @@
 
 📰 [Click here to read my blog](https://andrewpeacock.uk)
 
-💬 [Click here to join my Discord](https://discord.gg/Y846P9Mx)
+💬 [Click here to join my Discord](https://discord.gg/4t93JCtrw8)
